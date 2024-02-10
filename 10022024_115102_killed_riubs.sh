@@ -1,0 +1,1 @@
+If a statue in the park of a person on a horse has both front legs inthe air, the person died in battle; if the horse has one front leg inthe air,the person died as a result of wounds received in battle; if the horsehasall four legs on the ground, the person died of natural causes.
